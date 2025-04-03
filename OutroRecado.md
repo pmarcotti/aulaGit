@@ -18,3 +18,4 @@
 
 ## Compras para o Churrasco:
  - Coca cola (Marcotti)
+ - Pão de alho (Raquel Luna)
