@@ -15,3 +15,6 @@
 ## Comprar no final do mês:
 - sabão para lavar roupa
 - detergente
+
+## Compras para o Churrasco:
+ - Coca cola (Marcotti)
